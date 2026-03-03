@@ -1,4 +1,4 @@
-<a href="https://github.com/Mrxbroken011"> <img src="https://readme-typing-svg.herokuapp.com?font=Russo+One&size=30&duration=4000&pause=1000&color=F7F7F7&width=435&lines=Hey%2C+my+self+Mr+Sameer+;From+New+Delhi%2C+🇮🇳+India;The+Part+Of+Broken+X+Network!" alt="https://t.me/Brokenxnetwork1" /></a>
+<a href="https://github.com/Mrxbroken011"> <img src="https://readme-typing-svg.herokuapp.com?font=Russo+One&size=30&duration=4000&pause=1000&color=F7F7F7&width=435&lines=Hey%2C+my+self+Mr+Sameer+;From+New+Delhi%2C+India;The+Part+Of+Broken+X+Network!" alt="https://t.me/Brokenxnetwork1" /></a>
 
 
 
